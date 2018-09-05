@@ -1,1 +1,1 @@
-recept voor nasi goreng
+recept voor nasi gorengdjzep
