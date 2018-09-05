@@ -1,2 +1,0 @@
-pancake recept 
-change 
